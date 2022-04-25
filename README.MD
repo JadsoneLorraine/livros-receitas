@@ -4,4 +4,4 @@
 
 - Strogonoff de frango
 - Pavê
-- Frango frito
+- Carne do sol
